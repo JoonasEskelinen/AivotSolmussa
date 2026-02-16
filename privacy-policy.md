@@ -8,6 +8,6 @@ Sovellus ei käytä analytiikkaa, mainoksia tai kolmannen osapuolen palveluja.
 # Yhteystiedot
 Jos sinulla on kysyttävää, ota yhteyttä:
 
-eskelinen51@gmail.com
+info@joonaseskelinen.com
 
 Päivitetty: 30.12.2025
